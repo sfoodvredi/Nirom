@@ -1,7 +1,7 @@
-# [Ｖｉｖｏ] Atletico-MG vs Cienciano Ａｏ Ｖｉｖｏ Ｇｒａｔｉｓ  
+# Fortaleza - Racing Club ＡＯ ＶＩＶＯ ＯＮＬＩＮＥ  
   
   
-[![](https://i.imgur.com/qSNzIqt.png)](https://movie.rssnews.media/ETrxHzW.php)  
+[![](https://i.imgur.com/qSNzIqt.png)](https://movie.rssnews.media/fvjGzHx.php)  
   
 Demorou quase quatro décadas, uma falha de ignição espetacular em live-action e dezenas de outras adaptações fracassadas de Videogames para aprender, mas nada disso foi desperdiçado: Illumination e o filme  da Nintendo finalmente dão ao personagem mais icônico dos jogos a aventura na tela que ele sempre mereceu.
 Beneficiando-se imensamente da criatividade sem fim dos inúmeros desenvolvedores de jogos, artistas e músicos que fizeram da franquia  um rolo compressor da cultura pop,  lança foguetes junto com o ímpeto de uma bala explodindo de um canhão.
